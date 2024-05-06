@@ -1,2 +1,2 @@
-# Jacquelyn-s-B
+# Jacquelyn B
 My GitHub Website
